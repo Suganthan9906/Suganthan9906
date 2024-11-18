@@ -2,8 +2,8 @@
 - 👀 I’m interested in exploring in many of the technical hackathon 
 - 🌱 I’m currently learning in Loyola-Icam College of Engineering and Technology
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me on linkedin
+- 😄 Pronouns: Calm mind is a ultimate weapon against your battles
 - ⚡ Fun fact: I love to attend hackathon and play cricket
 
 <!---
