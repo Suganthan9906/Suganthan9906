@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Suganthan9906
-- 👀 I’m interested in exploring in many of the technical hackathon 
+- 👀 I’m interested in exploring the world
 - 🌱 I’m currently learning in Loyola-Icam College of Engineering and Technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on linkedin
